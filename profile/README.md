@@ -2,3 +2,4 @@
 
 We are a group that is dedicated to providing a fun and friendly gaming experience.  
 We are working diligently to provide the highest quality experience possible.
+Our Website is Currently Down Please forgive Us.
